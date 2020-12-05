@@ -1,0 +1,1 @@
+tarmarind,rice,water,chilli powder,dry red chilli,salt,turmarine powder,fenugreek,mustard,gram masala,fear lentils seeds,coriander
